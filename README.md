@@ -1,2 +1,2 @@
 # Random
-Literal solo subo weas y están todas prives así que nada, buenas tardes
+Literal solo subo weas y están todas privs así que nada, buenas tardes
